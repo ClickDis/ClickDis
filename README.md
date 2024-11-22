@@ -1,6 +1,6 @@
 
 ## JOSHJOSHJOSHJOSH
-[![](https://files.catbox.moe/zuc8x1.png)](https://rentry.co/cuIturalphiIistine) [![](https://files.catbox.moe/k2k0me.png)](https://blarvink.straw.page)
+[![](https://files.catbox.moe/k2k0me.png)](https://rentry.co/cuIturalphiIistine) [![](https://files.catbox.moe/zuc8x1.png)](https://blarvink.straw.page)
 
 ![](https://komarev.com/ghpvc/?username=culturalphilistine&color=850000)
 
