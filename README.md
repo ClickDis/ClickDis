@@ -1,6 +1,3 @@
-
-
-
 ![](https://komarev.com/ghpvc/?username=culturalphilistine&color=850000&label=viewers)
 
 
