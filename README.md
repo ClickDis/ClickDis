@@ -1,4 +1,4 @@
-[redoing rentry](https://github.com/culturalphilistine)⠀⠀[redoing strawpage](https://github.com/culturalphilistine)⠀⠀[atabook](https://culturalphilistine.atabook.org/?page=1)
+[redoing rentry](https://github.com/culturalphilistine)⠀⠀[strawpage](https://blarvink.straw.page)⠀⠀[atabook](https://culturalphilistine.atabook.org/?page=1)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ld6snspnl7bqiru4xskv4r74tm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&bar_color=7d0505&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
